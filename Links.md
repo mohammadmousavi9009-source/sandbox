@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-02 13:36 IR
+- 📥 [میان ترم 2.pdf](https://github.com/mohammadmousavi9009-source/sandbox/raw/main/dl/%D9%85%DB%8C%D8%A7%D9%86%20%D8%AA%D8%B1%D9%85%202.pdf) `102KB`
+
+---
+
+
 ### 📅 2026-05-02 13:34 IR
 - 📥 [میان ترم.pdf](https://github.com/mohammadmousavi9009-source/sandbox/raw/main/dl/%D9%85%DB%8C%D8%A7%D9%86%20%D8%AA%D8%B1%D9%85.pdf) `48KB`
 
