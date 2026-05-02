@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-02 13:50 IR
+- 📥 [پک مکانیک مواد مرکب.rar](https://github.com/mohammadmousavi9009-source/sandbox/raw/main/dl/%D9%BE%DA%A9%20%D9%85%DA%A9%D8%A7%D9%86%DB%8C%DA%A9%20%D9%85%D9%88%D8%A7%D8%AF%20%D9%85%D8%B1%DA%A9%D8%A8.rar) `87.9MB`
+
+---
+
+
 ### 📅 2026-05-02 13:47 IR
 - 🗜️ [Tamarin_morakkab.zip.zip](https://github.com/mohammadmousavi9009-source/sandbox/raw/main/dl/Tamarin_morakkab.zip.zip) `10.5MB`
 
